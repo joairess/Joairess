@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+Sou um profissional em transição para a área de tecnologia, com sólida experiência em administração e vendas, resolução de problemas e comunicação eficiente. Ao longo da minha trajetória, desenvolvi habilidades como análise de dados, organização de processos e atuação com ferramentas digitais sempre com foco na experiência do usuário.
+
+Atualmente, venho me aprofundando em temas como Inteligência Artificial e produtividade com tecnologia. Atuei em funções que exigem uso de sistemas, atendimento público e suporte, o que fortalece minha capacidade de adaptação e aprendizado rápido.
+
+Estou em busca de oportunidades para aplicar esse conhecimento técnico em contextos práticos, contribuir com soluções baseadas em dados e continuar crescendo profissionalmente na área de tecnologia, especialmente com foco em dados, automação e suporte digital.
